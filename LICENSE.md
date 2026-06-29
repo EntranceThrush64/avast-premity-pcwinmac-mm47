@@ -1,4 +1,4 @@
-# 
+# New Avast Premium Security extensions for Mac OS | Free Avast Premium Security extensions for PC Windows. Featuring game mode and network monitoring — optimized for maximum performance on every platform.
 
 
 
